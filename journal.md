@@ -6,3 +6,5 @@ My favorite game to play is Fortnite. The aspects of the game that makes it enjo
 sample
 # September 17, 2024
 This is a free week. W Ms.Whitby for the free week :) 
+# September 27, 2024
+Precision positivly affects the outcome of a program by making it run a lot more smooth and more exact to how you want it to work. If there are missed steps in a program you could prtencially run into some errors and you won't get the specific outcome you are trying to get. it is important to develope good attention to detail early in the coding journey in order to be able to be more fluent later on rather than trying to figure it out later.
