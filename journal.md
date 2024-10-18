@@ -17,3 +17,5 @@ Skills required: java, python, programming languages, problem solving, and atten
 Education and experience: bachelors in computer and technology or engineering and mathmatics
 career growth: none
 reflection: none
+# October 18, 2024
+nil
