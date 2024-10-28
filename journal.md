@@ -22,4 +22,4 @@ nil
 # October 21, 2024 
 There are a lot of benifits to Ai technology. The biggest benifit to Ai is that Ai is able to make things easier to do and sometimes able to do something for you without you having to do anything. However, Ai can have some risks as well. Ai isnt perfect because it was created by man. Because of this fact, Ai could mess up something crucial and potecially create a lot of problems if done or used incorrectly.
 # October 28, 2024
-nil
+Technology positivly impacts the voting process by making it quicker and more efficiant to get it done. This will make people more eger to vote since the prcess wont take as ong. However, there could be a huge issue with voting digitaly because it could potetially be hacked and could lead to unfair voting.
