@@ -33,3 +33,5 @@ Technology has changed the food industry immensly. With technology, people are a
 When it comes to Ai i think of chat GPT. Chat GPT is super benificial and very easily accessible in order to assist with anything that you need. Chat GPT can help with notes, calculations, and even just simple tasks. Technology concerns me because as much as chat GPT can hlp, it can also help people cheat, and student who cheat there way to a degree may not know ANYTHING when it comes down to applying the knowledge that they were supposed to learn. 
 # December 9, 2024
 The term brain rot to me means something that you do or say that makes you seem less intelectual mentally than you should be due to the stuff that you see online that may influence your behavior. Depending how you use digital media, it can positivly or negativly impact you. if you watch or invest in things that doesn't have any true value in inteligence or life could potentally be negative. However i do believe that it is possible to balence meaningful and irrelivent usage of ditgital media. 
+# December 16, 2024
+Yes, i am looking foward to the winter break
