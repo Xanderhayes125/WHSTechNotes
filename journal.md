@@ -35,5 +35,7 @@ When it comes to Ai i think of chat GPT. Chat GPT is super benificial and very e
 The term brain rot to me means something that you do or say that makes you seem less intelectual mentally than you should be due to the stuff that you see online that may influence your behavior. Depending how you use digital media, it can positivly or negativly impact you. if you watch or invest in things that doesn't have any true value in inteligence or life could potentally be negative. However i do believe that it is possible to balence meaningful and irrelivent usage of ditgital media. 
 # December 16, 2024
 Yes, i am looking foward to the winter break
-# January 8, 2024
+# January 8, 2025
 I enjoyed being with my friends but i could improve on doing my work.There isnt anything id like to learn. i am NOT interested in persuing a certification in this class.
+# January 13, 2025
+I think AI can be very benificial if certain areas but overall i think that humans are more reliable because if you depend souly on AI then when there are technical difficulties youre out of luck. AI can be helpful with calculations and floor planning with construction however wouldn't be very efficient actually building and stuff, which goes for all jobs. So i think learning to work together with AI would be good but completely being replaced could cause major issues later on.
