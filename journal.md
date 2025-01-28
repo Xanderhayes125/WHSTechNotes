@@ -41,3 +41,10 @@ I enjoyed being with my friends but i could improve on doing my work.There isnt 
 I think AI can be very benificial if certain areas but overall i think that humans are more reliable because if you depend souly on AI then when there are technical difficulties youre out of luck. AI can be helpful with calculations and floor planning with construction however wouldn't be very efficient actually building and stuff, which goes for all jobs. So i think learning to work together with AI would be good but completely being replaced could cause major issues later on.
 # January 22, 2025
 Government intervention impacts technology by restricting use of that certain technology, espicilly with tiktok. I would probably increse security services on tiktok by resricting useage of real names and identity information, while also restricting certain ages from accessing the app.
+# January 27, 2025
+  | Name     | Car | Mistake |
+  | :------- | :-- | :------ |
+  | Jimmy    |   Honda civic  |    Drilled hole in gas tank     |
+  | Kayla    |  GMC sierra   |    Fixed wrong problem     |
+  | Bart     |  Toyota corrola   |    Left stains on carpets     |
+  | Harrison |  Subaru Forester   |     Left the oil cap off    |
