@@ -48,5 +48,5 @@ Government intervention impacts technology by restricting use of that certain te
   | Kayla    |  GMC sierra   |    Fixed wrong problem     |
   | Bart     |  Toyota corrola   |    Left stains on carpets     |
   | Harrison |  Subaru Forester   |     Left the oil cap off    |
-# Febuary 3, 2025
+# February 3, 2025
 Air traffic contol systems is probably the biggest one as it relates to this specific situation because had the traffic control system been better or stronger the collision most likey may not have happened. They would have been able to pick up the signal from both planes and warned them ahead of time and completely avoided the collision all together. Software errors and bugs is also a big one. Since air travel relies heavily on technology to ensure safe air travle,it causes great risk to people and airlines when software errors happen because this causes for higher risk of danger and collisions which can have fatal outcomes.
