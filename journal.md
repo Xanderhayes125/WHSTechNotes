@@ -58,3 +58,5 @@ Air traffic contol systems is probably the biggest one as it relates to this spe
 |   Hexagon   |    Brown    |    6    |
 |   Triangle   |    Purple    |     4     |
 |   Octogon   |    Red    |     3     |
+# February 18, 2025
+Something interesting i learned last week was how to do a new drill in baseball. The drill was how to play a ball off the wall in the outfield. i found it interesting because ive never done those type of drills before so it was very useful.
