@@ -62,3 +62,11 @@ Air traffic contol systems is probably the biggest one as it relates to this spe
 Something interesting i learned last week was how to do a new drill in baseball. The drill was how to play a ball off the wall in the outfield. i found it interesting because ive never done those type of drills before so it was very useful.
 # February 24, 2025
 Technology can be used to help educators better understand the youth slang by scrolling through social media and finding different slang terms and their meaning in order to better relate to the youth. schools shouldn't teach slang terms because they arent very intelligent terms to use. There are many different ways to say things so i believe that schools should continue to teach the proper termonology for things. this new era of slang terms can be very confussing to adults or older individuals and can cause many misunderstandings. this can harshly impact educators and school staff by hearing something they may believe is bad or wrong but the children may mean something thats good and could lead to unnecessary conflict between them.
+# March 3, 2025
+| Name | Power |	Challenge |
+| ----- | ----- | --------- |
+|Zara | Telekenesis |	Secure Building |
+| Aether |	Weather Manipulation |	Prevent Assassination |
+| Thorne |	Invisibility| 	Underwater Rescue |
+| Silver |	Mind Control |	Retrieve Stolen Goods| 
+| Tangier |	Shapeshifting |	Extract Prisoner |
