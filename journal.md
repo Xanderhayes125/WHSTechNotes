@@ -70,3 +70,5 @@ Technology can be used to help educators better understand the youth slang by sc
 | Thorne |	Invisibility| 	Underwater Rescue |
 | Silver |	Mind Control |	Retrieve Stolen Goods| 
 | Tangier |	Shapeshifting |	Extract Prisoner |
+# March 17, 2025
+During the break, i used technology in many different ways. I used technology to cummunicate with friends and family, and To watch TV. I also used technology to litsen to music and play video games. most often i used my phone. 
