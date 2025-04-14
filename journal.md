@@ -74,3 +74,5 @@ Technology can be used to help educators better understand the youth slang by sc
 During the break, i used technology in many different ways. I used technology to cummunicate with friends and family, and To watch TV. I also used technology to litsen to music and play video games. most often i used my phone. 
 # March 24, 2025
 Technology like AI is used during march madness to predict games and how teams will do in a braket. it is also used for brodcasting and streaming games. It can be used even for keeping score during the games.
+# April 7, 2025
+AI can be used to study because the way it works, specifically chat gpt, anything you ask it gives you extremely detailed answers and step by step instructions on how to answer or solve something and gives you the correct answer. While AI is used for cheating on work, it can also be very reliable for studying if used correctly.
