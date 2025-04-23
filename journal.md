@@ -76,3 +76,9 @@ During the break, i used technology in many different ways. I used technology to
 Technology like AI is used during march madness to predict games and how teams will do in a braket. it is also used for brodcasting and streaming games. It can be used even for keeping score during the games.
 # April 7, 2025
 AI can be used to study because the way it works, specifically chat gpt, anything you ask it gives you extremely detailed answers and step by step instructions on how to answer or solve something and gives you the correct answer. While AI is used for cheating on work, it can also be very reliable for studying if used correctly.
+# April 14, 2025
+I belive that these bans are detrimental to student saftey and parent communication during school hours. Students may need to quickly contact a parent or guardian for something important like an injury or even a why home after school. If a student is being bullied, a parent support through the phone may be the only way to support that student. In case of a school threat, a student may feel safer in the situation by messaging a parent for support and guidence through the difficult situation.
+# April 22, 2025
+Dear Coach Clack,
+I am writing this because i appriciate you for the things you do for me and the knowledge you've given me. You've given me a chance to prove myself and show my progession through out my highschool career. You've given me valuable knowledge and understanding of not only baseball and sports but also life in the real world, outside of sports and school. I thank you for everything you've done and i thank you for everything you've done for the team as a collective.
+sincerely, Xander Hayes
