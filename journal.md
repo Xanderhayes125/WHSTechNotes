@@ -80,5 +80,11 @@ AI can be used to study because the way it works, specifically chat gpt, anythin
 I belive that these bans are detrimental to student saftey and parent communication during school hours. Students may need to quickly contact a parent or guardian for something important like an injury or even a why home after school. If a student is being bullied, a parent support through the phone may be the only way to support that student. In case of a school threat, a student may feel safer in the situation by messaging a parent for support and guidence through the difficult situation.
 # April 22, 2025
 Dear Coach Clack,
-I am writing this because i appriciate you for the things you do for me and the knowledge you've given me. You've given me a chance to prove myself and show my progession through out my highschool career. You've given me valuable knowledge and understanding of not only baseball and sports but also life in the real world, outside of sports and school. I thank you for everything you've done and i thank you for everything you've done for the team as a collective.
+I am writing this because i appriciate you for the things you do for me and the knowledge you've given me. You've given me a chance to prove myself and show my progession through out my highschool career. You've given me valuable knowledge and understanding of not only baseball and sports but also life in the real world, outside of sports and school. I thank you for everything you've done for me and for everything you've done for the team as a collective.
 sincerely, Xander Hayes
+# April 28, 2025
+
+# May 5, 2025
+I believe that 100 men could defeat a gorilla with stradegy and collective strength. however, this "trend" has become very misunderstood and made out as a joke or something dumb. I think itd be a good test in order to show and discover the true inteligence of humans and gorillas as well as the logical reasoning of humans and gorillas in a high pressure situation such as that.
+# May 12, 2025
+i think the chromebook challenge is very stupid and even more dangerous. people who think ts funny or just a joke also dont realize how harmful it can be to not only themselves but the people arounf them. not to add the fact that any damages made to the chromebooks have to be paid out of the holders pockets. so this causes unsafe enviornment for students, less chromebooks for incoming students, and unhappy parents who have to pay for replacments and repairs.
