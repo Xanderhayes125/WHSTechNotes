@@ -83,7 +83,11 @@ Dear Coach Clack,
 I am writing this because i appriciate you for the things you do for me and the knowledge you've given me. You've given me a chance to prove myself and show my progession through out my highschool career. You've given me valuable knowledge and understanding of not only baseball and sports but also life in the real world, outside of sports and school. I thank you for everything you've done for me and for everything you've done for the team as a collective.
 sincerely, Xander Hayes
 # April 28, 2025
-
+| Name     | Car | Mistake |
+  | :------- | :-- | :------ |
+  | sally   |   chocholate  |    graduation     |  $35.00   |
+  | michael   |   vanilla  |    farewell party     |  $37.00   |
+  | emma    |  carrot   |    birthday    | $39.00    |
 # May 5, 2025
 I believe that 100 men could defeat a gorilla with stradegy and collective strength. however, this "trend" has become very misunderstood and made out as a joke or something dumb. I think itd be a good test in order to show and discover the true inteligence of humans and gorillas as well as the logical reasoning of humans and gorillas in a high pressure situation such as that.
 # May 12, 2025
