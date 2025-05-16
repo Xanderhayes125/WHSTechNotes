@@ -83,8 +83,8 @@ Dear Coach Clack,
 I am writing this because i appriciate you for the things you do for me and the knowledge you've given me. You've given me a chance to prove myself and show my progession through out my highschool career. You've given me valuable knowledge and understanding of not only baseball and sports but also life in the real world, outside of sports and school. I thank you for everything you've done for me and for everything you've done for the team as a collective.
 sincerely, Xander Hayes
 # April 28, 2025
-| Name     | Car | Mistake |
-  | :------- | :-- | :------ |
+| Name     | flavor | occasion | price  |
+  | :------- | :----- | :------ | :----- |
   | sally   |   chocholate  |    graduation     |  $35.00   |
   | michael   |   vanilla  |    farewell party     |  $37.00   |
   | emma    |  carrot   |    birthday    | $39.00    |
