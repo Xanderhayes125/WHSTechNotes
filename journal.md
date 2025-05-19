@@ -92,3 +92,5 @@ sincerely, Xander Hayes
 I believe that 100 men could defeat a gorilla with stradegy and collective strength. however, this "trend" has become very misunderstood and made out as a joke or something dumb. I think itd be a good test in order to show and discover the true inteligence of humans and gorillas as well as the logical reasoning of humans and gorillas in a high pressure situation such as that.
 # May 12, 2025
 i think the chromebook challenge is very stupid and even more dangerous. people who think ts funny or just a joke also dont realize how harmful it can be to not only themselves but the people arounf them. not to add the fact that any damages made to the chromebooks have to be paid out of the holders pockets. so this causes unsafe enviornment for students, less chromebooks for incoming students, and unhappy parents who have to pay for replacments and repairs.
+# May 19, 2025
+yes
