@@ -22,3 +22,9 @@ Name	Main Dish	Dessert
 Fiona		
 Tobias		
 Leanne	
+# November 3, 2025
+SNAP running out is a big deal because people who are less fortinate that relay on food stamps and EBT may not be able to afford food for their families.
+# November 10, 2025
+Technology has changed the holidays because many people dont go physical shopping anymore. Most people just shop online like amazon or other online shipping websites.
+# November 17, 2025
+Yes i am looking foward to thanksgiving break.
