@@ -28,3 +28,7 @@ SNAP running out is a big deal because people who are less fortinate that relay 
 Technology has changed the holidays because many people dont go physical shopping anymore. Most people just shop online like amazon or other online shipping websites.
 # November 17, 2025
 Yes i am looking foward to thanksgiving break.
+# December 1, 2025
+free journal
+# December 8, 2025
+The self driving cars probably have camera issues not being able to sense the flashing red light. if it is able to properly sense trafic lights then it most likely struggles with the flashing light.
