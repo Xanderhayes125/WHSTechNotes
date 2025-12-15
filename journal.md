@@ -32,3 +32,5 @@ Yes i am looking foward to thanksgiving break.
 free journal
 # December 8, 2025
 The self driving cars probably have camera issues not being able to sense the flashing red light. if it is able to properly sense trafic lights then it most likely struggles with the flashing light.
+# December 15, 2025
+My plans for winter break is work, sleep, practice, and play the game.
