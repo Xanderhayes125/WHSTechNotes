@@ -34,3 +34,9 @@ free journal
 The self driving cars probably have camera issues not being able to sense the flashing red light. if it is able to properly sense trafic lights then it most likely struggles with the flashing light.
 # December 15, 2025
 My plans for winter break is work, sleep, practice, and play the game.
+# January 6, 2026
+I used technology by playing my PS5 during break
+# January 12, 2026
+Autcraft was created to give people with autism or other disablilities a safe enviornment to be able to be themselves on online minecraft servers. 
+# January 20, 2026
+im using my free journal.
