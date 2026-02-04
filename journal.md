@@ -40,3 +40,7 @@ I used technology by playing my PS5 during break
 Autcraft was created to give people with autism or other disablilities a safe enviornment to be able to be themselves on online minecraft servers. 
 # January 20, 2026
 im using my free journal.
+# January 29, 2026
+yes i took ACT and SAT but i didnt get the score i wanted on ACT.
+# February 2, 2026
+to behave professionally in a work, school, or public enviornemnt is to keep a calm, low tone in your voice, be respectful to others, and do what ever work or tasks thats been given to you in a timely manner.
