@@ -44,3 +44,9 @@ im using my free journal.
 yes i took ACT and SAT but i didnt get the score i wanted on ACT.
 # February 2, 2026
 to behave professionally in a work, school, or public enviornemnt is to keep a calm, low tone in your voice, be respectful to others, and do what ever work or tasks thats been given to you in a timely manner.
+# February 10, 2026
+i dont care for football and didnt watch the superbowl
+# February 23, 2026
+instant replay is probably the most important technological advancment because in sports there are a lot of very very very close calls that the human brain cant always process at regular time. So being able to replay and watch in high quality slow motion helps remendously. 
+# March 2, 2026
+use free journal
