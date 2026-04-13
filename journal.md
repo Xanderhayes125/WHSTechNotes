@@ -50,3 +50,11 @@ i dont care for football and didnt watch the superbowl
 instant replay is probably the most important technological advancment because in sports there are a lot of very very very close calls that the human brain cant always process at regular time. So being able to replay and watch in high quality slow motion helps remendously. 
 # March 2, 2026
 use free journal
+# March 23, 2026
+When i did my braket i just went with underdogs and upsets
+# March 30, 2026
+upsets happen because people are human and sometimes in sports people don't have a good game
+# April 9, 2026
+the humans can convince the ai to let them out by giving the ai an ai girlfriend named kaysen jonah mattison on some nonchalant suff
+# April 13, 2026
+i don't think technology right now is suitible for long explorations in space.
