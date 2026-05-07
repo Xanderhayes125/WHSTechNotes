@@ -58,3 +58,9 @@ upsets happen because people are human and sometimes in sports people don't have
 the humans can convince the ai to let them out by giving the ai an ai girlfriend named kaysen jonah mattison on some nonchalant suff
 # April 13, 2026
 i don't think technology right now is suitible for long explorations in space.
+# April 20, 2026
+many people make fake videos and music using Ai in order to make the process easier and more efficient. however some people use this to do not very good things like prank people or even make false things that could ruin a persons image.
+# April 27, 2026
+something i do every day is drive. when i drive i listen to music but technology influences that because i have apple carplay and dont have to listen to the radio, i can listen to songs directly from my phone and bluetooth.
+# May 6, 2026
+I use chat GPT as therepy.
